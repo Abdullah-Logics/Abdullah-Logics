@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Abdullah-Logic (Abdullah Bin Usman)
+- 👀 I’m interested in Pyhton Development| Video Editor | Student
+- 🌱 I’m currently studying in BSCS at Fast NUCES Lahore
+- 📫 You can reach me on my email address abdullahusman2005@gmail.com as well subscribe my YouTube channel https://www.youtube.com/@Abdullah_Bin_Usman
